@@ -1,4 +1,4 @@
-### Hi there 👋
+### A man. with a keyboard. what will he do?
 
 <!--
 **thsunkid/thsunkid** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
